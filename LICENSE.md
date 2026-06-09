@@ -1,4 +1,4 @@
-# 
+# مجاني binance futures bot قوالب لـ Mac OS | رسمي binance futures bot قوالب لـ PC Windows. مع مستمعي الأحداث و حد المعدل — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
